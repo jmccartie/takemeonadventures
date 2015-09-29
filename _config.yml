@@ -1,0 +1,14 @@
+# Site settings
+title: Take Me On Adventures
+email: takemeonadventures@gmail.com
+description: > # this means to ignore newlines until "baseurl:"
+  A Family of 5, Touring America
+baseurl: "" # the subpath of your site, e.g. /blog/
+url: "http://takemeonadventures.com" # the base hostname & protocol for your site
+
+# Build settings
+markdown: kramdown
+
+
+gems:
+  - jekyll-redirect-from
