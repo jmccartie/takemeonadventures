@@ -13,9 +13,13 @@ layout: default
           <a class="post-link" href="{{ post.url | prepend: site.baseurl }}">{{ post.title }}</a>
         </h2>
 
-        {{ post.content | strip_html | truncatewords: 50 }}
+        <p>
+          {{ post.excerpt | regex_first: '<p>(.*?)<\/p>' }}
+        </p>
 
-        <em><a href="{{ post.url }}">(read more)</a></em>
+        <p>
+          <em><a href="{{ post.url }}">Read More...</a></em>
+        </p>
 
       </li>
     {% endfor %}
