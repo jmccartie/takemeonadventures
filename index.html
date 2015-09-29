@@ -14,7 +14,7 @@ layout: default
         </h2>
 
         <p>
-          {{ post.excerpt | regex_first: '<p>(.*?)<\/p>' }}
+          {{ post.content | regex_first: '<p>(.*?)<\/p>' }}
         </p>
 
         <p>
