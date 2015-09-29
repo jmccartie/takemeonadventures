@@ -11,5 +11,6 @@ markdown: kramdown
 paginate: 5
 paginate_path: "/page:num/"
 
-gems:
-  - jekyll-redirect-from
+
+gems: ['kramdown', 'jekyll-redirect-from']
+exclude: ['config.ru', 'Gemfile', 'Gemfile.lock', 'vendor', 'Procfile', 'Rakefile']
