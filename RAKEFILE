@@ -15,7 +15,7 @@ end
 desc "Default 'rake' command creates a new post"
 task :default do
   title = ask('Title: ')
-  filename = "#{Time.now.strftime('%Y-%m-%d')}-#{title.gsub(/\s/, '_').downcase}.markdown"
+  filename = "#{Time.now.strftime('%Y-%m-%d')}-#{title.gsub(/\s/, '-').downcase}.markdown"
   path = File.join("_posts", filename)
   if File.exist? path; raise RuntimeError.new("File exists #{path}"); end
   File.open(path, 'w') do |file|
