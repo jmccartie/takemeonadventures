@@ -8,7 +8,7 @@ I met [Josh Solar](instagram.com/joshsolarlovesyou) a few years ago while at a b
 
 Josh is also part of a [great podcast called "Discovering Dad"](http://www.discoveringdadpodcast.com/). I love hearing from him and fellow dads about their adventures in parenting. Us dads aren't very good at opening up and sharing each other's burdens. Frankly, we all believe we should somehow have this whole "dad" thing wired. (sounds a bit like [imposter syndrome](https://en.wikipedia.org/wiki/Impostor_syndrome), actually) So, I'm grateful to Josh and his crew for creating this podcast.
 
-I was thrilled to be asked onto the podcast to talk about our life on the road. What started with a nice little chat about our weird life decisions evolved into a wonderul discussion about engaging with the world around us, saying no to good things, and the realities of self-shaming as fathers.
+I was thrilled to be asked onto the podcast to talk about our life on the road. What started with a nice little chat about our weird life decisions evolved into a wonderful discussion about engaging with the world around us, saying no to good things, and the realities of self-shaming as fathers.
 
 Enjoy!
 
