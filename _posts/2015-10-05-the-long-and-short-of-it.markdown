@@ -2,10 +2,10 @@
 layout: post
 title: The Long and Short Of It
 date: 2015-10-05 14:18:08
+redirect_from: "/2015/10/05/the_long_and_short_of_it.html"
 ---
 
 It's easy to look back on seasons of your life and wish you had done things differently. We learned a lot owning our first "home on wheels", but it's time to upgrade ... to something half as big.
-
 
 ## Why We Wanted Something Smaller
 
