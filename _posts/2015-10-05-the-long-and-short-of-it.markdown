@@ -100,7 +100,7 @@ I visited the trailer the next day and agreed on a price: $6,400. With the side 
 
 ## Next Steps
 
-The morning I drove to pick up the trailer, we got news that my sister-in-law Alee had [gone into labor early at 24 weeks](https://www.gofundme.com/fv5n7rqk). I picked up the trailer, took it to a nearby storage facility, then headed home to watch the kids while Erin headed to the hospital. Alee gave birth the next morning. We are *beyond* grateful to be living in San Diego right now so that we can be helpful and encouraging right now.
+The morning I drove to pick up the trailer, we got news that my sister-in-law Alee had [gone into labor early at 24 weeks](https://www.gofundme.com/fv5n7rqk). I picked up the trailer, took it to a nearby storage facility, then headed home to watch the kids while Erin headed to the hospital. Alee gave birth the next morning. We are *beyond* grateful to be living in San Diego right now to be close to family during a difficult time.
 
 While baby "Mighty Max" continues to grow, we've decided to do some remodeling to the trailer before we hit the road again in November. Follow along on [Instagram](https://instagram.com/jmccartie/) for the updates.
 
