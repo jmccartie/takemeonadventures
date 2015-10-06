@@ -7,8 +7,6 @@ redirect_from: "/2015/10/05/the_long_and_short_of_it.html"
 
 It's easy to look back on seasons of your life and wish you had done things differently. We learned a lot owning our first "home on wheels", but it's time to upgrade ... to something half as big.
 
-<!-- more -->
-
 ## Why We Wanted Something Smaller
 
 When we purchased our 5th wheel trailer in January 2015, we couldn't imagine living in anything smaller. After all, we were already downsizing from 2,100 square feet to around 300. The idea of the kids having their own room, with bunks, and room for a few toys seemed logical, if not just barely humane. And certainly the idea of having our own space up front seemed like a good fit as well.

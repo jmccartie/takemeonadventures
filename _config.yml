@@ -14,6 +14,3 @@ paginate_path: "/page:num/"
 
 gems: ['kramdown', 'jekyll-redirect-from']
 exclude: ['config.ru', 'Gemfile', 'Gemfile.lock', 'vendor']
-
-
-excerpt_separator: <!-- more -->
