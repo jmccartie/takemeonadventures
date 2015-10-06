@@ -43,7 +43,7 @@ The next morning, I spoke with Erin and we decided that the offer on our current
 
 ### Packing Up
 
-I flew back to Seattle Thursday and rented a 5x8' trailer Friday morning. We spent all day Friday and Saturday clearing out our trailer and loading up the Uhaul. I agreed to sell our 5th wheel hitch in the deal, which meant removing it myself in a campground -- a much more difficult task that you'd think. Two bolts wouldn't budge, so I had to drive into town to find a mechanic to get the buggers off. But the new owner came by to pick up the hitch and we kept on packing up.
+I flew back to Seattle Thursday and rented a 5x8' trailer Friday morning. We spent all day Friday and Saturday clearing out our trailer and loading up the Uhaul. I agreed to sell our 5th wheel hitch in the deal, which meant removing it myself in a campground -- a much more difficult task than you'd think. Two bolts wouldn't budge, so I had to drive into town to find a mechanic to get the buggers off. But the new owner came by to pick up the hitch and we kept on packing up.
 
 ![image](https://scontent-lax3-1.xx.fbcdn.net/hphotos-xpa1/t31.0-8/11224346_1662643150687083_7698446042125164855_o.jpg)
 
@@ -77,7 +77,7 @@ Then I received a text message from the seller: "Something's come up. I can't me
 
 After an hour, another message from the seller. She was in the middle of a divorce and the trailer was the first asset to go. Although the husband had agreed to sell it off last week, he had changed his mind:
 
-> I have just been served a financial restraining order blocking the sale of the trailer until our divorce is final. My husband has blocked the trailer in the driveway with his truck, so I'm unable to get it our for you even if i could.
+> I have just been served a financial restraining order blocking the sale of the trailer until our divorce is final. My husband has blocked the trailer in the driveway with his truck, so I'm unable to get it out for you even if i could.
 
 My head hit the table.
 
@@ -100,7 +100,7 @@ I visited the trailer the next day and agreed on a price: $6,400. With the side 
 
 ## Next Steps
 
-The morning I drove to pick up the trailer, we got news that my sister-in-law Alee had [gone into labor early at 24 weeks](https://www.gofundme.com/fv5n7rqk). I picked up the trailer, took it to a nearby storage facility, then headed home to watch the kids while Erin headed to the hospital. Alee gave birth the next morning. We are *beyond* grateful to be living in San Diego right now so that we can be helpful and encouraging right now.
+The morning I drove to pick up the trailer, we got news that my sister-in-law Alee had [gone into labor early at 24 weeks](https://www.gofundme.com/fv5n7rqk). I picked up the trailer, took it to a nearby storage facility, then headed home to watch the kids while Erin headed to the hospital. Alee gave birth the next morning. We are *beyond* grateful to be living in San Diego right now to be close to family during a difficult time.
 
 While baby "Mighty Max" continues to grow, we've decided to do some remodeling to the trailer before we hit the road again in November. Follow along on [Instagram](https://instagram.com/jmccartie/) for the updates.
 
