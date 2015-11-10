@@ -74,6 +74,12 @@ Finally, "repack the axles" came up on the TODO list. I read a few blog posts an
 
 ![image](https://scontent-lax3-1.xx.fbcdn.net/hphotos-xpt1/t31.0-8/12238341_1672330263051705_5300764514285247131_o.jpg)
 
+## Final Touches
+
+Erin was in charge off re-covering the dinette cushions, and all the nice finishing touches.  She ordered some fabric online and covered *over* the existing coverings. I think they turned out great!
+
+![image](https://scontent-lax3-1.xx.fbcdn.net/hphotos-xpf1/t31.0-8/12232857_1672330286385036_4932854582187948897_o.jpg)
+
 ## By The Numbers
 
 Drum roollllllll... the numbers!
