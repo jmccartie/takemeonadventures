@@ -6,10 +6,6 @@ date: 2015-12-15 16:49:44
 
 We're finally on the road again! After a [short stint in San Diego](/2015/10/05/the-long-and-short-of-it.html) to [remodel our new trailer](/2015/11/10/rv-remodel.html), we decided to head North into the California high desert.
 
-# Southern California 2015
-
-Photos from this leg of our adventure can be [found on Facebook](https://www.facebook.com/media/set/?set=a.1682368678714530.1073741836.1480729742211759).
-
 ## Temecula
 
 ![image](https://scontent-lax3-1.xx.fbcdn.net/hphotos-xpl1/t31.0-8/12362779_1682368698714528_9128672260113751384_o.jpg)
