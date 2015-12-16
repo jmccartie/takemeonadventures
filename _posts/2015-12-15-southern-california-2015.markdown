@@ -34,7 +34,7 @@ For a BLM site, this was a great find. Free camping, but with a fire pit, covere
 
 We learned that [@boldadventure](https://instagram.com/boldadventure) and [@remembertoexplore_com](https://instagram.com/remembertoexplore_com) were out in Mojave, so we decided to meet up with them out there.  We stayed at [Hole In The Wall Campground](https://www.campendium.com/hole-in-the-wall-campground-mojave) -- another great find. $12/night got us a level site in a quiet campground, with water and trash close by and a dump station in the loop.
 
-We took the kids to the Kelso Sand Dunes one day, and spent the other days hiking around our campground loop. There wasn't a whole lot else to do (even though Mojave is the largest National Preserve in the continental U.S.), but we didn't mind: we had some traveling family neighbors and we had a blast hanging with them.
+We took the kids to the Kelso Sand Dunes one day, and spent the other days hiking around our campground loop. At 1.6 million acres, Mojave National Preserve is the third largest unit of the National Park System in the contiguous United States. Despite that fact, there wasn't a whole lot else to do besides the sand dunes and Kelso Depot. But we didn't mind: we had some traveling family neighbors and we had a blast hanging with them.
 
 ![image](https://scontent-lax3-1.xx.fbcdn.net/hphotos-xpa1/t31.0-8/12339433_1682369082047823_973171113207827724_o.jpg)
 
@@ -54,14 +54,20 @@ The biggest thing we learned from this trip: our kids couldn't give a crap about
 
 ![image](https://scontent-lax3-1.xx.fbcdn.net/hphotos-xtp1/t31.0-8/12356864_1682368958714502_3281358198102792510_o.jpg)
 
-After a quick weekend to visit family for THanksgiving, we headed to Joshua Tree, CA. There's no cell reception in the park, so we opted to first stay at the only National Park campground with a dump station, [Black Rock Canyon Campground](https://www.campendium.com/black-rock-canyon-campground). After a few "meh" days there, we met back up with our traveling family friends at some [BLM land north of Joshua Tree.](https://www.campendium.com/joshua-tree-north)
+After a quick weekend to visit family for Thanksgiving, we headed to Joshua Tree, CA. There's no cell reception in the park, so we opted to first stay at the only National Park campground with a dump station, [Black Rock Canyon Campground](https://www.campendium.com/black-rock-canyon-campground). After a few "meh" days there, we met back up with our traveling family friends at some [BLM land north of Joshua Tree.](https://www.campendium.com/joshua-tree-north)
 
-This was a crazy place to hangout. The area is a dry lake bed and is basically a huge pile of dust. The kids (and everything in trailer) were covered by a thick layer of dirt after being there for almost a week. But it was worth it. We loved spending time with our friends and the kids loved the chance to roam around the desert, getting dirty, and playing from sun-up to sun-down.
+This was a crazy place to hangout. The area is a dry lake bed and is basically a huge pile of dust. The kids (and everything in the trailer) were covered by a thick layer of dirt after being there for almost a week. But it was worth it. We loved spending time with our friends and the kids loved the chance to roam around the desert, getting dirty, and playing from sun-up to sun-down.
 
-We only managed a single day trip into JTNP. We used to live in San Diego and Los Angeles, so I've spent a lot of time in JTNP. It holds a special place in my heart: it's here that I first camped outdoors as an adult and discovered my love for the outdoors. It's also where I learned to climb.
+![image](https://scontent-sjc2-1.xx.fbcdn.net/hphotos-xfl1/t31.0-8/12309716_1682368948714503_4535527345415408425_o.jpg)
+
+Our new friend, Julia Wilhelms wrote this about our time out there:
+
+> Life in the desert is weird and awesome. It's like a random hippie trailer trash dystopia party. There's "ern" burned into the dry ground, we have a makeshift skate area with leftover plastic sheets and there are swim googles and chopsticks lying around. I don't see my kid most of the day because she's a robot with a diaper box head or a train on the skateboard or just randomly running around laughing. We're having bonfires and toy rockets and donuts after the kids went to bed and neighbors are bringing over pizza and homemade soup. I can't remember the last time I had so much fun..or the last time I was this dirty.
+
+
+We only managed a single trip into JTNP. We used to live in San Diego and Los Angeles, so I've spent a lot of time in JTNP. It holds a special place in my heart: it's here that I first went camping as an adult and discovered my love for the outdoors. It's also where I learned to climb.
 
 ![image](https://scontent-lax3-1.xx.fbcdn.net/hphotos-xlt1/t31.0-8/1462582_1682368945381170_4525404396063915167_o.jpg)
-
 
 
 ## Riverside
@@ -76,12 +82,17 @@ Not bad, not great. BUT, we managed to find a drive-in movie theater nearby. The
 
 THE BEACH! Finally! On a tip from [@mali.mish.dan](https://instagram.com/mali.mish.dan), we got some pricey beach-front reservations at [Doheny State Beach](https://www.campendium.com/doheny-state-beach). After a week in the dust bowl of Joshua Tree, my wife needed a break and the sounds of the ocean is exactly what we all needed.
 
-The kids still came back dirty everyday (should we expect anything else?), but at leaast sand is easier to clean up.
+The kids still came back dirty everyday (should we expect anything else?), but at least sand is easier to clean up.
 
 I loved working outside and breathing in the ocean air.
 
 ![image](https://scontent-lax3-1.xx.fbcdn.net/hphotos-xtf1/t31.0-8/12374883_1682369052047826_1994232332184515968_o.jpg)
 
----
+## Next Up
 
-Photos from this leg of our adventure can be [found on Facebook](https://www.facebook.com/media/set/?set=a.1682368678714530.1073741836.1480729742211759).
+We'll be heading to San Diego for Christmas, then back out to the desert to celebrate New Years with about 20 other traveling families. After that, we'll continue our search for warmer temperatures and head into Southern Arizona. We plan to tool around Arizona (maybe southern New Mexico) for the winter, before heading into Utah for the spring.
+
+See you on down the road!
+
+
+*Photos from this leg of our adventure can be [found on Facebook](https://www.facebook.com/media/set/?set=a.1682368678714530.1073741836.1480729742211759).*
