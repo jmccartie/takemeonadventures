@@ -12,7 +12,7 @@ Here's where we left off: we recently sold our 34' 5th wheel and opted for a sma
 
 ![image](https://scontent-lax3-1.xx.fbcdn.net/hphotos-xta1/t31.0-8/12186762_1672329899718408_8126353884012313666_o.jpg)
 
-Our outdated walls and cabinets got the first round of love. I removed the cabinets (the trailer was in storage) and brought them back to Erin's parents house to get painted. Sanding went pretty quick with an electric palm sander Erin's dad had. We opted for a Behr paint and primer in one and the cabinets took the paint pretty well. It required a little touch-up after the fact, but not pad at all.
+Our outdated walls and cabinets got the first round of love. I removed the cabinets (the trailer was in storage) and brought them back to Erin's parents house to get painted. Sanding went pretty quick with an electric palm sander Erin's dad had. We opted for a Behr paint and primer in one and the cabinets took the paint pretty well. It required a little touch-up after the fact, but not bad at all.
 
 ![image](https://scontent-lax3-1.xx.fbcdn.net/hphotos-xap1/t31.0-8/12244617_1672329953051736_8468903132009758971_o.jpg)
 
@@ -70,7 +70,7 @@ Not a lot to tell here, but yeah ... mattress. The ones that the trailer came wi
 
 ## Axles
 
-Finally, "repack the axles" came up on the TODO list. I read a few blog posts and watched a handful of videos and decided I was very much done being handy. And I didn't want to screw this up. I found a RV repair 5 minutes from the RV storage place that had 4 star review on Google. They charged me $270 to repack all 4 wheels. Not bad for the peace of mind.
+Finally, "repack the axles" came up on the TODO list. I read a few blog posts and watched a handful of videos and decided I was very much done being handy. And I didn't want to screw this up. I found a RV repair 5 minutes from the RV storage place that had a 4 star review on Google. They charged me $270 to repack all 4 wheels. Not bad for the peace of mind.
 
 ![image](https://scontent-lax3-1.xx.fbcdn.net/hphotos-xpt1/t31.0-8/12238341_1672330263051705_5300764514285247131_o.jpg)
 
@@ -107,7 +107,7 @@ Yeah, that "misc" category was no joke. Every trip to Home Depot was $80 here, $
 
 ## A Dry Run
 
-We decided to stay close to family our first week and give everything a test run. We booked 4 nights at Lake Skinner Recreational Area with full hookups. I knew the electrical system worked, but had no way to test out water and sewer. Once we arrived, I pulled our new sewer hose from its box and kneeled down to unscrew the sewer cap from the drain. As I turned it, a deluge of "fluid" began to pour out and onto the ground. I quickly screwed it back on.
+We decided to stay close to family our first week and give everything a test run. We booked 4 nights at [Lake Skinner Recreational Area](https://www.campendium.com/lake-skinner-recreation-area) with full hookups. I knew the electrical system worked, but had no way to test out water and sewer. Once we arrived, I pulled our new sewer hose from its box and kneeled down to unscrew the sewer cap from the drain. As I turned it, a deluge of "fluid" began to pour out and onto the ground. I quickly screwed it back on.
 
 My next move was critical. I stood up, stared at the situation, and scratched my head.
 
