@@ -4,13 +4,13 @@ title: Bedroom Remodel
 date: 2016-02-02 14:26:13
 ---
 
-After our first two months in our "new" (to us) travel trailer, we quickly learned what we missed about our old 5th wheel -- 3 beds for 3 kids.
+After our first two months in our "new" (to us) [travel trailer](/2016/02/02/bedroom-remodel.html), we quickly learned what we missed about our old 5th wheel: 3 beds for 3 kids.
 
 In our 5th wheel, we had a queen up front, and 3 bunks in the back. However, our 27' only had two beds in the back: a twin up top and full underneath. "No sweat", we thought. "Ava (7yo) can have the top bunk while Ruby (5yo) and Henry (2yo) get the bottom bunk together." But after a few nights of a toddler thrashing about, Ruby had had enough.
 
-And because Ruby couldn't sleep with Henry, that meant we'd wake up to Ruby in our queen size bed with us ... which (yes, you guessed it), mommy and daddy didn't sleep. So we took a page from our friends the [Currens](https://www.instagram.com/currentlywandering/) and decided to give the kids their own beds.
+And because Ruby couldn't sleep with Henry, that meant we'd wake up to Ruby in our queen size bed with us ... which (yes, you guessed it), mommy and daddy didn't sleep. So we took a page from our friends the [Curren's](https://www.instagram.com/currentlywandering/) and decided to give the kids their own beds.
 
-When we met the Currens, [we loved what they had done with their Airstream](http://currentlywandering.com/airstream-bedroom-remodel/) -- a "C-shaped" bed up front for their 3 kids, while they took the gaucho couch in the living room of their trailer. The only downside to their setup is that they have to setup their bed each night.
+When we met the Curren's, [we loved what they had done with their Airstream](http://currentlywandering.com/airstream-bedroom-remodel/) -- a "C-shaped" bed up front for their 3 kids, while they took the gaucho couch in the living room of their trailer.
 
 ## Demolition
 
