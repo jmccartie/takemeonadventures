@@ -22,7 +22,7 @@ Despite Jon having the "wild hair", Erin was the first one to bring up the idea 
 
 ### Jon
 
-![image](https://scontent-cdg2-1.xx.fbcdn.net/hphotos-xap1/v/t1.0-9/11738014_1635977946686937_4051480912117824212_n.jpg?oh=1d6b9ba01439a4f3acc6344084e21872&oe=56A71FCB)
+![image](https://dl.dropboxusercontent.com/u/2776026/Instagram/1389498_479620368877828_1191594716_n.jpg)
 
 Jon works at [Heroku](http://heroku.com) -- a platform-as-a-service company owned by Salesforce. When deciding whether or not to hit the road, the big first question was how to find work. Thankfully, we found a great job at a company with a fantastic "remote working" culture. You'll find Jon typing, tying knots, starting fires, or climbing rocks.
 
