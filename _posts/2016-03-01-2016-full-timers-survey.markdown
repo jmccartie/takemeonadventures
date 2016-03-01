@@ -30,10 +30,10 @@ And since talking about finances is "taboo", I created an annonymous survey for 
 My favorite take-aways:
 
 * Most rigs are new purchases and most people spent $75k or more
-* Families spend 75% more on groceries
 * Families and couples spend about the same eating out
-* Couples spend 78% more on "Fun and Entertainment"
-* Families spend 6x more on campgrounds than couples
+* Families spend 75% more than couples on groceries
+* Families spend 130% more than couples on "Fun and Entertainment"
+* Families spend 43% more than couples on campgrounds
 * 30% of respondents were debt free
 * 35% spent at least $1,000/month on debt
 
@@ -406,7 +406,7 @@ $(function () {
           },
           series: [{
             name: "Categories",
-            data: [417, 277, 461, 109, 97, 137, 137, 167, 279, 1005]
+            data: [417, 278, 113, 461, 109, 98,  137, 137, 167, 280, 1006]
           }]
       });
   });
