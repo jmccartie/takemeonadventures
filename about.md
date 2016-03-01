@@ -5,7 +5,7 @@ permalink: /about/
 redirect_from: "/about-us"
 ---
 
-![image](https://scontent-cdg2-1.xx.fbcdn.net/hphotos-xtf1/v/t1.0-9/11836743_1643842875900444_7274987907232123164_n.jpg?oh=b0077183bd3a1dd0638e9ccaddf1c2c3&oe=569A851A)
+![image](https://dl.dropboxusercontent.com/u/2776026/Instagram/12568173_144536125922247_1274171792_n.jpg)
 
 
 We are a family of 5 living, working, and exploring America!
@@ -14,7 +14,7 @@ We are a family of 5 living, working, and exploring America!
 
 ### Erin
 
-![image](https://scontent-sea1-1.xx.fbcdn.net/hphotos-xpt1/v/t1.0-9/11146620_1604121669872565_6428463629770876267_n.jpg?oh=c8c75ad67f10729084c574abeee36842&oe=568E56CF)
+![image](https://dl.dropboxusercontent.com/u/2776026/Instagram/12345884_1661192887494903_371020168_n.jpg)
 
 She comes first cos she's the magic that makes this whole thing work. Erin quit her job as a nurse to stay at home with our kids. As a "test run" for hitting the road, she began homeschooling Ava in the fall of 2014 (1st grade). You'll find Erin teaching, reading, painting, or cooking amazing meals.
 
@@ -29,19 +29,19 @@ Jon works at [Heroku](http://heroku.com) -- a platform-as-a-service company owne
 
 ### Ava
 
-![image](https://scontent-cdg2-1.xx.fbcdn.net/hphotos-xpf1/v/t1.0-9/11170347_1635977723353626_6089977059633910014_n.jpg?oh=d0b774121b04b74bb19cdb623fdd9cc0&oe=568A784D)
+![image](https://dl.dropboxusercontent.com/u/2776026/Instagram/12751213_1560935804224511_2017597961_n.jpg)
 
 The oldest, Ava gets lots of compliments about her beautiful red hair. She has a soft heart, loves people, and is a fantastic big sister.
 
 ### Ruby
 
-![image](https://scontent-cdg2-1.xx.fbcdn.net/hphotos-xpa1/v/t1.0-9/11407075_1615522992065766_5431470903143953313_n.jpg?oh=cad98752732d0ae77ec7a1364b42986a&oe=565FDF3B)
+![image](https://dl.dropboxusercontent.com/u/2776026/Instagram/12071222_185194001821042_415971821_n.jpg)
 
 Ruby is one tough chick. She loves her princesses, but she also loves playing with bugs, throwing a ball, and pestering her little brother. She also has **the** cutest voice ever (and we'll be sad when she grows out of it).
 
 ### Henry
 
-![image](https://scontent-cdg2-1.xx.fbcdn.net/hphotos-xfp1/v/t1.0-9/11836774_1643838982567500_2649379941710353960_n.jpg?oh=25e5bfe55df78ce8852a7ce9f5440a10&oe=5690D256)
+![image](https://dl.dropboxusercontent.com/u/2776026/Instagram/12751255_944275575620617_488169581_n.jpg)
 
 Momma's baby boy. He gets away with everything, but we can't help it. Life is good as the youngest. Henry loves throwing rocks into lakes.
 

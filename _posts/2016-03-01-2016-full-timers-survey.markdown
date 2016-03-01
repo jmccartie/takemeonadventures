@@ -460,3 +460,5 @@ $(function () {
 </script>
 
 <div id="expenditures-with-kids" class="chart"></div>
+
+There you have it. Just remember: this is not scientific, and it certainly doesn't over the 1,000,000+ people that claim an RV as their full-time residence. But I hope this information helps give you a small sense of how a few other full-timers spend their money.
