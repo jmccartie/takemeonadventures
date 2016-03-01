@@ -21,7 +21,7 @@ We spent most of January boondocking with a few other full-timers. People from d
   }
 </style>
 
-We also witnessed a few interesting events last month: from people stressed about repairing their RV's, to couples worried about their debt, to other couples with seemingly no financial troubles whatsoever.Despite similar lifestyles, everyone was in a different spot financially. I began to wonder what other full-timers spent each month. We're a family of 5 with 3 kids under 7. When the kids were little, we spent about $500/month on groceries. But this past month, we spent $850. Is that a lot? I don't know. (I just peeked in my fridge and I wouldn't describe its contents as "extravagent")
+We also witnessed a few interesting events last month: from people stressed about repairing their RV's, to couples worried about their debt, to other couples with seemingly no financial troubles whatsoever. Despite similar lifestyles, everyone was in a different spot financially. I began to wonder what other full-timers spent each month. We're a family of 5 with 3 kids under 7. When the kids were little, we spent about $500/month on groceries. But this past month, we spent $850. Is that a lot? I don't know. (I just peeked in my fridge and I wouldn't describe its contents as "extravagent")
 
 And since talking about finances is "taboo", I created an annonymous survey for full-timers. We had 51 respondents to the survey.
 
