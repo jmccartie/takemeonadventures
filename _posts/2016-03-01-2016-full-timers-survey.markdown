@@ -21,9 +21,7 @@ We spent most of January boondocking with a few other full-timers. People from d
   }
 </style>
 
-We also witnessed a few interesting events last month. One family of 4 had a broken axle and were homeless for a week with few financial options. One couple broke their $1,000 drone and easily upgraded to the latest model. One couple admitted to me they were buried under crushing financial debt. One family was looking forward to taking their rig to Europe on a boat.
-
-Despite similar costs of living (boondocking is free), everyone was in a different spot financially. I began to wonder what other full-timers spent each month. We're a family of 5 with 3 kids under 7. When the kids were little, we spent about $500/month on groceries. But this past month, we spent $850. Is that a lot? I don't know. (I just peeked in my fridge and I wouldn't describe its contents as "extravagent")
+We also witnessed a few interesting events last month: from people stressed about repairing their RV's, to couples worried about their debt, to other couples with seemingly no financial troubles whatsoever. Despite similar lifestyles, everyone was in a different spot financially. I began to wonder what other full-timers spent each month. We're a family of 5 with 3 kids under 7. When the kids were little, we spent about $500/month on groceries. But this past month, we spent $850. Is that a lot? I don't know. (I just peeked in my fridge and I wouldn't describe its contents as "extravagent")
 
 And since talking about finances is "taboo", I created an annonymous survey for full-timers. We had 51 respondents to the survey.
 
@@ -461,4 +459,4 @@ $(function () {
 
 <div id="expenditures-with-kids" class="chart"></div>
 
-There you have it. Just remember: this is not scientific, and it certainly doesn't over the 1,000,000+ people that claim an RV as their full-time residence. But I hope this information helps give you a small sense of how a few other full-timers spend their money.
+There you have it. Just remember: this is not scientific, and it certainly doesn't cover the 1,000,000+ people that claim an RV as their full-time residence. But I hope this information helps give you a small sense of how a few other full-timers spend their money.
