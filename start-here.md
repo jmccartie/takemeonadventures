@@ -4,7 +4,7 @@ title: Start Here
 permalink: /start-here/
 ---
 
-![](https://fbcdn-photos-c-a.akamaihd.net/hphotos-ak-xta1/v/t1.0-0/p180x540/12072652_1660919714192760_7391508701214286031_n.jpg?oh=1fe757994f0d743ef64ae7ea5a3c2f7c&oe=568F3EAF&__gda__=1452823504_272606a9bf9214e879f8109a53fd2aa7)
+![image](https://dl.dropboxusercontent.com/u/2776026/Instagram/12822526_222994358049454_880539912_n.jpg)
 
 Welcome to Take Me On Adventures!
 
