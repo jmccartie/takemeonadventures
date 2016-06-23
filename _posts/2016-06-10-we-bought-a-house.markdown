@@ -1,12 +1,10 @@
 ---
 layout: post
-title: We Bought A House!
+title: We Bought A House
 date: 2016-06-10 14:46:05
 ---
 
 The rumors are true: after 439 days on the road, we've decided to buy a home and put down some roots. We've purchased a lovely little house on 5 acres in northern Idaho.
-
-![image](https://dl.dropboxusercontent.com/u/2776026/Instagram/13385622_1142064739190547_432909969_n.jpg)
 
 ## The Rumblings
 
