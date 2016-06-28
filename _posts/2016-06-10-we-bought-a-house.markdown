@@ -55,7 +55,7 @@ While we waited for our truck to have its tailgate replaced in Boise, we began t
 
 ![image](https://dl.dropboxusercontent.com/u/2776026/Instagram/13108971_1730114067266234_2059877972_n.jpg)
 
-The beauty of Idaho really came alive to us on that drive. It was beautiful. Large forests, wide open spaces, lakes and rivers. It certainly wasn't the Southern California coast that we both grew up with, but it was definitely the kind of place we saw ourselves enjoying for years to come.
+The beauty of Idaho really came alive to us on that drive. It was gorgeous. Large forests, wide open spaces, lakes and rivers. It certainly wasn't the Southern California coast that we both grew up with, but it was definitely the kind of place we saw ourselves enjoying for years to come.
 
 We settled into a National Forest campsite on the east side of Couer D'Alene. We enjoyed a few days exploring and getting to know the town, but quickly decided it wasn't the right spot. CDA felt a lot like Lake Tahoe to us -- a seasonal town with lots of money and lacking the community we were looking for.
 
