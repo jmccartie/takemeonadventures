@@ -10,7 +10,7 @@ The rumors are true: after 439 days on the road, we've decided to buy a home and
 
 Earlier this spring, we started talking about what we'd do in 2017. After finishing our loop across the American West, what did we want to do? Visit the East coast? Go international?
 
-At first, we started to seriously considering heading to Mexico and Central America for January through March. Leave the trailer somewhere in San Diego after Christmas, fly south, then head back once it starts to warm up. We'd also been talking about buying some land somewhere north -- Idaho, Washington, Montana, or somewhere in there. We loved our time in Montana last summer and it'd be fun to have a little place to retreat to in the summer.
+At first, we started to seriously consider heading to Mexico and Central America for January through March. Leave the trailer somewhere in San Diego after Christmas, fly south, then head back once it starts to warm up. We'd also been talking about buying some land somewhere north -- Idaho, Washington, Montana, or somewhere in there. We loved our time in Montana last summer and it'd be fun to have a little place to retreat to in the summer.
 
 So we figured we'd visit Idaho later this summer, maybe buy some bare land, then return to it next year to build something small like a yurt or a tiny house. It'd be a great place to return to each summer and slowly build it out over the coming years.
 
