@@ -86,6 +86,6 @@ For that time, being on the road was exactly what we needed. We've got the pictu
 
 And the adventure continues -- right outside our front door. Our house is located near thousands of acres of National Forest land. We're 45 minutes from ski slopes, 5 hours to Banff, 3.5 hours to Glacier National Park, and so much more. And now my kids will get that tree house they've been begging for, I get that dog I've wanted, and Erin gets the garden and chickens she's been dreaming of.
 
-And if we get the itch again? We'll hit the road. We're keeping the trailer and see ourselves journeying to grandmas house in the winter, exploring the Pacific NW, or visiting Canadian wine country to our north. We may be done with full-time travel, but we're not done exploring this big beautiful world around us.
+And if we get the itch again? We'll hit the road. We definitely see ourselves journeying to grandmas house in the winter, exploring the Pacific NW, or visiting Canadian wine country to our north. We may be done with full-time travel, but we're not done exploring this big beautiful world around us.
 
 ![image](https://dl.dropboxusercontent.com/u/2776026/Instagram/13118112_603762026442518_410191709_n.jpg)
