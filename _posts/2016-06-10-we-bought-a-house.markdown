@@ -35,7 +35,7 @@ They were tired, too. Their dreams were no longer open roads, but were dreams of
 
 ## Decision Time
 
-Erin and stayed up late for a few nights and mulled all of this over. It was really **really** hard to admit that we might need to take a break. We've loved being on the road. So many great memories, new friends, and more adventure than we've had in our entire lives. We've been advocates of this lifestyle to friends and family -- how could we leave the road and not sound like hypocrites?
+Erin and I stayed up late for a few nights and mulled all of this over. It was really **really** hard to admit that we might need to take a break. We've loved being on the road. So many great memories, new friends, and more adventure than we've had in our entire lives. We've been advocates of this lifestyle to friends and family -- how could we leave the road and not sound like hypocrites?
 
 We caught ourselves elevating the concerns of our community over the needs of our family. We shook that off and saw clearly that what our family needed was a home -- one without wheels.
 
