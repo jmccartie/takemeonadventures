@@ -10,7 +10,7 @@ The rumors are true: after 439 days on the road, we've decided to buy a home and
 
 Earlier this spring, we started talking about what we'd do in 2017. After finishing our loop across the American West, what did we want to do? Visit the East coast? Go international?
 
-At first, we started to seriously considering heading to Mexico and Central America for January through March. Leave the trailer somewhere in San Diego after Christmas, fly south, then head back once it starts to warm up. We'd also been talking about buying some land somewhere north -- Idaho, Washington, Montana, or somewhere in there. We loved our time in Montana last summer and it'd be fun to have a little place to retreat to in the summer.
+At first, we started to seriously consider heading to Mexico and Central America for January through March. Leave the trailer somewhere in San Diego after Christmas, fly south, then head back once it starts to warm up. We'd also been talking about buying some land somewhere north -- Idaho, Washington, Montana, or somewhere in there. We loved our time in Montana last summer and it'd be fun to have a little place to retreat to in the summer.
 
 So we figured we'd visit Idaho later this summer, maybe buy some bare land, then return to it next year to build something small like a yurt or a tiny house. It'd be a great place to return to each summer and slowly build it out over the coming years.
 
@@ -35,7 +35,7 @@ They were tired, too. Their dreams were no longer open roads, but were dreams of
 
 ## Decision Time
 
-Erin and stayed up late for a few nights and mulled all of this over. It was really **really** hard to admit that we might need to take a break. We've loved being on the road. So many great memories, new friends, and more adventure than we've had in our entire lives. We've been advocates of this lifestyle to friends and family -- how could we leave the road and not sound like hypocrites?
+Erin and I stayed up late for a few nights and mulled all of this over. It was really **really** hard to admit that we might need to take a break. We've loved being on the road. So many great memories, new friends, and more adventure than we've had in our entire lives. We've been advocates of this lifestyle to friends and family -- how could we leave the road and not sound like hypocrites?
 
 We caught ourselves elevating the concerns of our community over the needs of our family. We shook that off and saw clearly that what our family needed was a home -- one without wheels.
 
@@ -55,7 +55,7 @@ While we waited for our truck to have its tailgate replaced in Boise, we began t
 
 ![image](https://dl.dropboxusercontent.com/u/2776026/Instagram/13108971_1730114067266234_2059877972_n.jpg)
 
-The beauty of Idaho really came alive to us on that drive. It was beautiful. Large forests, wide open spaces, lakes and rivers. It certainly wasn't the Southern California coast that we both grew up with, but it was definitely the kind of place we saw ourselves enjoying for years to come.
+The beauty of Idaho really came alive to us on that drive. It was gorgeous. Large forests, wide open spaces, lakes and rivers. It certainly wasn't the Southern California coast that we both grew up with, but it was definitely the kind of place we saw ourselves enjoying for years to come.
 
 We settled into a National Forest campsite on the east side of Couer D'Alene. We enjoyed a few days exploring and getting to know the town, but quickly decided it wasn't the right spot. CDA felt a lot like Lake Tahoe to us -- a seasonal town with lots of money and lacking the community we were looking for.
 
@@ -86,6 +86,6 @@ For that time, being on the road was exactly what we needed. We've got the pictu
 
 And the adventure continues -- right outside our front door. Our house is located near thousands of acres of National Forest land. We're 45 minutes from ski slopes, 5 hours to Banff, 3.5 hours to Glacier National Park, and so much more. And now my kids will get that tree house they've been begging for, I get that dog I've wanted, and Erin gets the garden and chickens she's been dreaming of.
 
-And if we get the itch again? We'll hit the road. We're keeping the trailer and see ourselves journeying to grandmas house in the winter, exploring the Pacific NW, or visiting Canadian wine country to our north. We may be done with full-time travel, but we're not done exploring this big beautiful world around us.
+And if we get the itch again? We'll hit the road. We definitely see ourselves journeying to grandmas house in the winter, exploring the Pacific NW, or visiting Canadian wine country to our north. We may be done with full-time travel, but we're not done exploring this big beautiful world around us.
 
 ![image](https://dl.dropboxusercontent.com/u/2776026/Instagram/13118112_603762026442518_410191709_n.jpg)
