@@ -60,11 +60,11 @@ Known issues
 Pricing
 
 * Nada Guides (blue book value), retail w/ options: $7,320
-+ paint and updates - $2,000
-+ boondocking goodies - $2,800
-+ cell boosting - $570
+* paint and updates - $2,000
+* boondocking goodies - $2,800
+* cell boosting - $570
 
-Total: $12,600
+Total: $12,690
 <br />
 **Sale price: $10,900**
 
