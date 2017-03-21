@@ -4,7 +4,7 @@ title: Start Here
 permalink: /start-here/
 ---
 
-![image](https://dl.dropboxusercontent.com/u/2776026/Instagram/12822526_222994358049454_880539912_n.jpg)
+![image](https://scontent-sea1-1.cdninstagram.com/t51.2885-15/e35/12822526_222994358049454_880539912_n.jpg)
 
 Welcome to Take Me On Adventures!
 

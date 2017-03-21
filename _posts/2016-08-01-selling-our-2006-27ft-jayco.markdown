@@ -12,4 +12,4 @@ Email me if you're interested: jmccartie AT Gmail.
 
 Here's the full post with details and lots of pictures: http://spokane.craigslist.org/rvs/5719910874.html
 
-![image](https://dl.dropboxusercontent.com/u/2776026/Instagram/12965702_460544424149009_924631161_n.jpg)
+![image](https://scontent-sea1-1.cdninstagram.com/t51.2885-15/e35/12965702_460544424149009_924631161_n.jpg)
