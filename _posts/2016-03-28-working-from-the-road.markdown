@@ -22,6 +22,8 @@ We started with a 12GB plan, which surprisingly worked pretty well for the first
 
 However, the holy grail of road life is an unlimited data plan. I know quite a few people who have managed to find unlimited plans on Ebay, where they work out a deal with the plan's owner to have it transferred to them. We were lucky enough to snag an unlimited plan from another full-timing family. They were going international for awhile and were kind enough to lease the SIM card out to us. I have no idea what we'll do once they come back to the states, but I'm not going to worry about it now. In the meantime, Netflix and HBO Now for everyone!!!
 
+If internet is a must for work, don't forget a signal booster! In most places, we were able to get our signal strength up -- sometimes from 1 to 5 bars! We loved the [weBoost Drive 4G-M](http://amzn.to/2njjbbu). Other folks we knew used the less-powerful [cradle version](http://amzn.to/2njvS6f).
+
 ## Desk Setup
 
 We've had two different trailers our first year on the road and neither really had a great spot for a typical desk. Furthermore, I wasn't really too excited about carving out a whole section of our limited living space for a desk. I much prefer to work outside as often as possible. If driven inside because of weather, I'll opt to work at the dinette or couch.
@@ -34,17 +36,19 @@ I know others who have the spare space for a desk setup -- usually a standing de
 
 People forget about this one. :)
 
-I've got a 15" Macbook Pro (thanks Heroku!). I originally had a Cinema Display, but it took up a huge amount of room and an even larger amount of power. To preserve power, I try to only charge my laptop during daylight hours to take advantage of our solar power. The solar controller will quickly replace any power routed to my laptop battery versus pulling from our house batteries at night.
+I've got a 15" Macbook Pro (thanks Heroku!). I originally had a Cinema Display, but it took up a huge amount of room and an even larger amount of power. To preserve power, I try to only charge my laptop during daylight hours to take advantage of our solar power. The [solar controller](http://amzn.to/2njA5H0) will quickly replace any power routed to my laptop battery versus pulling from our house batteries at night.
 
 My MBP draws about 7amps while charging off our inverter. Some other nomad friends swear by a DC charger for the MBP, but I've had two burn out on me and won't be going back anytime soon. (your mileage may vary). So today was a good example for power usage:
 
 * 8am. House batteries (220 amp hours total, 110 usable) are at 87% after last night's usage. 3amps are coming in from solar. MBP at 10% before charging. Started charging laptop, dropped to -4amps, but not to fear since the sun was still low.
-* 10am. MBP charging and solar is handling that *and* pushing 12amps into the batteries.
+* 10am. MBP charging and [solar is handling that](http://amzn.to/2mRu8Og) *and* pushing 12amps into the batteries.
 * 12pm. House batteries are fully charged and solar controller is in "float" stage and also finishing up my laptop, which is at 90%.
 * 1pm. Laptop is fully charged. I leave it plugged in and solar controller is floating.
 * 5pm. Work is done. Shut down laptop and inverter. Solar will continue to float until the sun goes down. We're not really drawing any power right now (we run -1amp with basic systems)
 
 Today is a little cold and windy so I'm working from inside, which means I'll stay plugged in. But normally, I'd be outside at some point. If I've got a full battery, I can work from anywhere nearby with my camp chair. If I'm desperate for power, I'll run an extension cable outside from the inverter. :)
+
+For more info on our solar setup, take a look at our [RV Remodel post](/2015/11/10/rv-remodel.html).
 
 ## A "Normal" Day
 
