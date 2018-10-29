@@ -8,8 +8,4 @@ With the purchase of our new home in North Idaho, it's time to downsize our trav
 
 But that means, you (or someone you know?) is about to purchase an awesomely updated, boondocking-ready, home on the road!
 
-Email me if you're interested: jmccartie AT Gmail.
-
-Here's the full post with details and lots of pictures: http://spokane.craigslist.org/rvs/5719910874.html
-
-![image](https://scontent-sea1-1.cdninstagram.com/t51.2885-15/e35/12965702_460544424149009_924631161_n.jpg)
+** UPDATE: Sold! **

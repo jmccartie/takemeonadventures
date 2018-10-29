@@ -25,12 +25,7 @@ We also had some travel planned: I had two work trips and Erin was taking the ki
 
 We tried to shake it and headed for Bryce Canyon National Park. More rain and cold temps came. We were camped in the shade and couldn't get sun without our freshly-stolen solar panel. To make it worse, our converter wasn't working (which allows you to charge your batteries from a generator), so our power was dwindling. The blues returned in full force.
 
-
-![image](https://scontent-sea1-1.cdninstagram.com/t51.2885-15/e35/13181445_1592283704417388_1254019407_n.jpg)
-
 Then, we noticed something in our kids. We took them to Bryce one day for a beautiful hike, but we noticed their malaise. What once was excitement about visiting a National Park was now boredom. Visiting Parks and exploring new places had become common-place for them. This was the first time we'd seen this in them. Over the next few days, we began to get their opinions on where we were and where we were headed. We'd always promised ourselves we'd pay close attention to our kids and never force them to travel if they didn't want to.
-
-![image](https://scontent-sea1-1.cdninstagram.com/t51.2885-15/e35/13151075_273333586345935_261995768_n.jpg)
 
 They were tired, too. Their dreams were no longer open roads, but were dreams of having their own rooms, building a tree house, having a dog, and taking dance lessons. They missed having friends and wanted some level of stability.
 
@@ -54,13 +49,11 @@ So we told our friends in Moab we wouldn't be heading that way. Instead, we hurr
 
 While we waited for our truck to have its tailgate replaced in Boise, we began to put on our sleuthing hats. We started taking long drives around the city and countryside. We had our hearts set on northern Idaho, but maybe Boise would fit the bill. While we loved the downtown area and surrounding foothills, Boise wasn't quite what we were looking for. So after the truck was fixed, we headed north for Memorial Day Weekend.
 
-![image](https://scontent-sea1-1.cdninstagram.com/t51.2885-15/e35/13108971_1730114067266234_2059877972_n.jpg)
 
 The beauty of Idaho really came alive to us on that drive. It was gorgeous. Large forests, wide open spaces, lakes and rivers. It certainly wasn't the Southern California coast that we both grew up with, but it was definitely the kind of place we saw ourselves enjoying for years to come.
 
 We settled into a National Forest campsite on the east side of Couer D'Alene. We enjoyed a few days exploring and getting to know the town, but quickly decided it wasn't the right spot. CDA felt a lot like Lake Tahoe to us -- a seasonal town with lots of money and lacking the community we were looking for.
 
-![image](https://scontent-sea1-1.cdninstagram.com/t51.2885-15/e35/13267338_1303552033007438_1819093794_n.jpg)
 
 So that left one more town on our list: Sandpoint. To be honest, this was a lot of pressure to put on one little town. What if we didn't like it? What would be do? Scrap the plan and just head to Washington? We had to leave our options open -- we didn't want to force ourselves into a bad decision. So we drove north with an open mind.
 
@@ -71,8 +64,6 @@ The first few days in Sandpoint were very weird. We had built things up so much 
 Once we did, we fell in love. Now, I don't want to sing the praises of Sandpoint too much. If I did, everyone would move here and it would lose its small town charm. So I'll just tell you that it fit us great. Small town, wide open spaces, close to lots of outdoor adventures. We started getting excited.
 
 We called up a realtor that was recommended to us -- someone who specialized in off-grid and rural properties. We drove around much of the area last week. We saw a lot of old, run-down houses. We saw a few gorgeous houses, but with terrible locations. We were disappointed. But the last house of the day was different. It was exactly what we had dreamed of: 5 acres for the kids to run around on, a creek and well providing off-grid water, and located close enough to town for church and gymnastics. And not too big or too expensive that it would cripple us financially. We pulled the trigger and signed an accepted offer.
-
-![image](https://scontent-sea1-1.cdninstagram.com/t51.2885-15/e35/13414422_1357894524227215_406396441_n.jpg)
 
 We'll roam around Idaho in our trailer during escrow, then grab the keys on closing, and pull up to the house to unload our few possessions. Then we'll head to Costco to find some mattresses.
 
@@ -89,4 +80,3 @@ And the adventure continues -- right outside our front door. Our house is locate
 
 And if we get the itch again? We'll hit the road. We definitely see ourselves journeying to grandmas house in the winter, exploring the Pacific NW, or visiting Canadian wine country to our north. We may be done with full-time travel, but we're not done exploring this big beautiful world around us.
 
-![image](https://scontent-sea1-1.cdninstagram.com/t51.2885-15/e35/13118112_603762026442518_410191709_n.jpg)

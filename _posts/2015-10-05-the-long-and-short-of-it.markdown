@@ -45,7 +45,7 @@ The next morning, I spoke with Erin and we decided that the offer on our current
 
 I flew back to Seattle Thursday and rented a 5x8' trailer Friday morning. We spent all day Friday and Saturday clearing out our trailer and loading up the Uhaul. I agreed to sell our 5th wheel hitch in the deal, which meant removing it myself in a campground -- a much more difficult task than you'd think. Two bolts wouldn't budge, so I had to drive into town to find a mechanic to get the buggers off. But the new owner came by to pick up the hitch and we kept on packing up.
 
-![image](https://scontent-lax3-1.xx.fbcdn.net/hphotos-xpa1/t31.0-8/11224346_1662643150687083_7698446042125164855_o.jpg)
+![image](/images/11224346_1662643150687083_7698446042125164855_o.jpg)
 
 He arrived Sunday morning to pick up the trailer. We said our goodbyes to "Cora the Caravan" (including Ruby hugging her and crying a bit) and hit the road. We had 1 week until a family reunion in Portland, so we just needed to buy some time until then. We unloaded all our things into a storage unit and decided to stay at a state campground just south of Portland. At the same time, we found a great deal on a 2011 Airstream 27FB in Houston, TX. We had just enough Southwest points accrued, so I booked a flight.
 
@@ -59,7 +59,7 @@ Here's the honesty part: we've got a credit problem. We had to short-sell our ho
 
 We took a gamble on selling our trailer before securing another, and we lost that bet. I spent 3 days in a yurt in Portland, depressed and wondering if it was time to pack it all in and be done traveling. As a man -- the provider for my family -- this was a hard pill to swallow.
 
-![image](https://scontent-lax3-1.xx.fbcdn.net/hphotos-xtp1/t31.0-8/12015082_1662643297353735_6025043685872636464_o.jpg)
+![image](/images/12015082_1662643297353735_6025043685872636464_o.jpg)
 
 But we had one more shot...
 
@@ -67,7 +67,7 @@ But we had one more shot...
 
 The family reunion in Portland provided a nice reprieve from our troubles. (The one hard part was having to tell my in-laws that we no longer had a trailer and we couldn't get a loan for another) Erin's parents rented a gorgeous home in Oregon City, complete with its own stocked fishing pond. The girls had been completely unfazed by all the drama around them ("We get to stay in a yurt?!") and getting to see grandma and papa only added to the delight.
 
-![image](https://scontent-lax3-1.xx.fbcdn.net/hphotos-xtp1/t31.0-8/12139944_1662643520687046_8308071323223751129_o.jpg)
+![image](/images/12139944_1662643520687046_8308071323223751129_o.jpg)
 
 Erin and I agreed that an Airstream just wasn't in the cards right now, so we changed our Craigslist searches and found a 24' trailer about 5 miles from where we were staying. We'd have to borrow a bit of cash from my in-laws (another hard pill to swallow), but we could make it.
 
@@ -95,7 +95,7 @@ Then, one night, Erin sent me a text message as we sat on the couch watching TV.
 
 I visited the trailer the next day and agreed on a price: $6,400. With the side work I had just gotten, plus the money we were saving living at home, we were able to buy it for cash! And no loan from the in-laws. What a feeling!
 
-![image](https://scontent-lax3-1.xx.fbcdn.net/hphotos-xpa1/t31.0-8/12079972_1662646597353405_2669833577127049857_o.jpg)
+![image](/images/12079972_1662646597353405_2669833577127049857_o.jpg)
 
 
 ## Next Steps
